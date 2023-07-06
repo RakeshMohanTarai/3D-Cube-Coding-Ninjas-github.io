@@ -1,2 +1,2 @@
-# 3D-Cube-Coding-Ninjas-github.io
+# 3D-Cube Coding Ninjas
  
